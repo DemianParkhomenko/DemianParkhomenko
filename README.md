@@ -1,16 +1,14 @@
-### Hi there 👋
-
-<!--
-**DemianParkhomenko/DemianParkhomenko** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
+![parrot-dance-moves](https://github.com/DemianParkhomenko/DemianParkhomenko/assets/95881717/95437c6d-9932-4f80-908a-88cca51658df)
